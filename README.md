@@ -2,6 +2,8 @@
 
 sunstapler.
 
-14, depressed n autistic system.
+14, depressed n autistic system w/ 30+ members.
 
 https://sunstapler.straw.page
+
+https://sunstapler.atabook.org
