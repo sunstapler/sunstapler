@@ -7,3 +7,5 @@ sunstapler.
 https://sunstapler.straw.page
 
 https://sunstapler.atabook.org
+
+https://pronouns.cc/@sunstapler
