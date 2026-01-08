@@ -2,4 +2,6 @@
 
 veil. collective of 30+ members. ask for pronouns.  
 
-no dni, just dont be a jerk.
+current theme: valkyrie from forsaken!
+
+no dni, just dont be a jerk. we're nice i promise!!! come interact!!!
