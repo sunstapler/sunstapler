@@ -1,4 +1,4 @@
-<img width="500" height="500" alt="image" src="https://file.garden/aNIBm-TzAyklL9Bq/32253C12-EB6E-453C-B2E8-0AAB4DB5909F.png" />
+<img width="500" height="500" alt="image" src="https://file.garden/aNIBm-TzAyklL9Bq/CACBA97B-37EF-4959-AEAD-3D8127B125D7.png" />
 
 veil. collective of 30+ members. ask for pronouns.  
 
